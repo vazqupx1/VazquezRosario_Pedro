@@ -1,2 +1,0 @@
-# Pedro X Vazquez Rosario
-
